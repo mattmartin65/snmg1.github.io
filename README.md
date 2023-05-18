@@ -1,0 +1,1 @@
+# snmg1.github.io
