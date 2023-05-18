@@ -1,1 +1,1 @@
-# snmg1.github.io
+# content
